@@ -4,7 +4,7 @@ Ace Justin Macawile
 
 ______________________,
 
-2ND YEAR BSIE - "wasnt my first choice but I like it."
+2ND YEAR BSIE - "wasn't my first choice but I like it."
 
 \\__________________________________
 
